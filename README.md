@@ -1,6 +1,6 @@
-<p align="center"> ❛ if u would let me give 
-<p align="center"> u pinky promise kisses . . ❜ 
-<p align="center"> <img src="https://i.postimg.cc/Z5MSzYnw/image-2024-10-06-004524665.png"/>
+<p align="center"> ❛ u're always on my mind 
+<p align="center"> i cant help it . . ❜ 
+<p align="center"> <img src="https://i.postimg.cc/PJZYkQ0Z/image-2024-11-07-185522959.png"/>
 </p>
 
 <div align="center">
