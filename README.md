@@ -5,4 +5,4 @@
 
 <div align="center">
   
-[RENTRY](https://rentry.co/oracIeofstars)‎    ‎‎‎‎‎‎˖‎    [ATABOOK](https://thelookoflove.atabook.org)    ˖    [STRAWPAGE](https://bluelocks.straw.page)
+[RENTRY](https://rentry.co/oracIeofstars)‎    ‎‎‎‎‎‎˖‎    [ATABOOK](https://thelookoflove.atabook.org)    ˖    [STRAWPAGE](https://lookoflove.straw.page)
