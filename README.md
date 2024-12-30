@@ -7,5 +7,4 @@
 [GUNS.LOL](https://guns.lol/thelookoflove)‎    ‎‎‎‎‎‎˖‎    [TWITTER](https://x.com/rinverses)    ˖    
 
 
-<p align="center"> ❛ love u so mad, 
-<p align="center"> love u so mad . . ❜ 
+<p align="center"> ummm wip
