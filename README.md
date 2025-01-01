@@ -4,7 +4,7 @@
 
 <div align="center">
   
-[GUNS.LOL](https://guns.lol/thelookoflove)‎    ‎‎‎‎‎‎˖‎    [TWITTER](https://x.com/rinverses)    ˖    
+[GUNS.LOL](https://guns.lol/lukewarm)‎    ‎‎‎‎‎‎˖‎    [TWITTER](https://x.com/rinverses)    ˖    
 
 
 <p align="center"> ummm wip
