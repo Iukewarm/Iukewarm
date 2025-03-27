@@ -1,6 +1,6 @@
 <div align="center">
   
-[RENTRY](https://rentry.co/oracIeofstars)‎    ‎‎‎‎‎‎˖‎    [ATABOOK](https://lukewarms.atabook.org)    ˖    [STRAWPAGE](https://lookoflove.straw.page)
+[RENTRY](https://rentry.co/oracIeofstars)‎    ‎‎‎‎‎‎˖‎    [ATABOOK](https://lookoflove.atabook.org)    ˖    [STRAWPAGE](https://lukewarms.straw.page)
 
 <div align="center">
   
