@@ -8,6 +8,6 @@
 [GUNS.LOL](https://guns.lol/lukewarm)‎    ‎‎‎‎‎‎˖‎    [TWITTER](https://x.com/rinverses)    ˖    
 
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Iukewarm)
+![haie](https://komarev.com/ghpvc/?username=Iukewarm&label=🎟️&color=D2042D)
 
 <p align="center"> ⠀⠀   ⠀& im tryna   ⠀⠀───   ⠀⠀change ur mind   ⠀⠀ა ྀིྀི
