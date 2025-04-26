@@ -1,5 +1,4 @@
-<div align="center">         ،⠀now its 3 in the mornin', 
-<p align="center"> <img src="https://i.postimg.cc/fWC78Jv4/o.png"/>
+everything a wip ok? ok. ty
   
 [RENTRY](https://rentry.co/oracIeofstars)‎    ‎‎‎‎‎‎˖‎    [ATABOOK](https://thelookoflove.atabook.org)    ˖    [STRAWPAGE](https://lukewarms.straw.page)
 
