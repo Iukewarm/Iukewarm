@@ -1,4 +1,5 @@
 I NEED BLLK FANS WHO ARENT WEIRD TO INT PLEEEAAAASEEE C+H C+H Cries
+
 everything a wip ok? ok. ty
   
 [RENTRY](https://rentry.co/oracIeofstars)‎    ‎‎‎‎‎‎˖‎    [ATABOOK](https://rinitoshi.atabook.org)    ˖    [STRAWPAGE](https://lukewarms.straw.page)
