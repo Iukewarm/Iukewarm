@@ -6,4 +6,4 @@
 [![straw](https://i.postimg.cc/kXK8smQy/image-2025-05-15-013730045.png)](https://lukewarms.straw.page)
 
   
-
+list of alts : @loveanddeepspace @tabieta @soIo-leveling @cavasoz @paris-x-gen @blueIock @neoegoistleague , umm theyre mostly used for my PONYTOWN cosplays when i cant decide if i wanna use my main acc or one of these heh.
