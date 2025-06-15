@@ -1,4 +1,5 @@
 ![haie](https://komarev.com/ghpvc/?username=Iukewarm&label=🐻‍❄️&color=000000)
+hi pony townians, i will b inactive or online here and there but not often. i have a life haha.. and my wonderful bf 😜😜😜
 
 
 [![renty](https://i.postimg.cc/fyHyb8mk/image-2025-05-15-013103362.png)](https://rentry.co/cradles) 
