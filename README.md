@@ -1,9 +1,12 @@
-![haie](https://komarev.com/ghpvc/?username=Iukewarm&label=🐻‍❄️&color=000000)
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　![⭒](https://komarev.com/ghpvc/?username=Iukewarm&label=⭒&color=f1f1f1)
+
+　　　　
 
 
-[![renty](https://i.postimg.cc/fyHyb8mk/image-2025-05-15-013103362.png)](https://rentry.co/cradles) 
-[![ata](https://i.postimg.cc/tgXgh0k7/image-2025-05-15-013517800.png)](https://rinitoshi.atabook.org)
-[![straw](https://i.postimg.cc/kXK8smQy/image-2025-05-15-013730045.png)](https://lukewarms.straw.page)
+<p align="center">
+  <img src="https://i.postimg.cc/NfgbBbbX/g52.gif" />
 
-  
-[@loveanddeepspace](https://github.com/loveanddeepspace) [@tabieta](https://github.com/tabieta) [@soIo-leveling](https://github.com/soIo-leveling) [@souIsociety](https://github.com/souIsociety) [@paris-x-gen](https://github.com/paris-x-gen) [@blueIock](https://github.com/blueIock) [@neoegoistleague](https://github.com/neoegoistleague) 
+　　　　
+
+<sub>　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　[RENTRY](https://rentry.co/cradles)ㅤ[ATABOOK](https://rinitoshi.atabook.org)ㅤ[STRAWPAGE](https://lukewarms.straw.page) </sub>
+</p>
