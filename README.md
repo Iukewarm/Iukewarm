@@ -1,4 +1,4 @@
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　![⭒](https://komarev.com/ghpvc/?username=Iukewarm&label=⭒&color=f1f1f1)
+　　　　　　　　　　　　　　　　　　　　　　　　　　　![⭒](https://komarev.com/ghpvc/?username=Iukewarm&label=⭒&color=f1f1f1)
 
 　　　　
 
@@ -8,5 +8,5 @@
 
 　　　　
 
-<sub>　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　[RENTRY](https://rentry.co/cradles)ㅤ[ATABOOK](https://rinitoshi.atabook.org)ㅤ[STRAWPAGE](https://lukewarms.straw.page) </sub>
+<sub>　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　[RENTRY](https://rentry.co/cradles)ㅤ[ATABOOK](https://rinitoshi.atabook.org)ㅤ[STRAWPAGE](https://lukewarms.straw.page) </sub>
 </p>
