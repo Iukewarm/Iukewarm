@@ -8,5 +8,5 @@
 
 　　　　
 
-<sub>　　　　　　　　　　　　　　　　　　　　　　　　　[RENTRY](https://rentry.co/cradles)ㅤ[ATABOOK](https://rinitoshi.atabook.org)ㅤ[STRAWPAGE](https://lukewarms.straw.page) </sub>
+<sub>　　　　　　　　　　　　　　　　　　[RENTRY](https://rentry.co/cradles)ㅤ[ATABOOK](https://rinitoshi.atabook.org)ㅤ[STRAWPAGE](https://lukewarms.straw.page) </sub>
 </p>
