@@ -2,4 +2,4 @@ was goody
 
 WIPPPPP
 
-[RENTRY](rentry.co/cradles)
+[RENTRY](www.rentry.co/cradles)
