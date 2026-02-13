@@ -1,6 +1,6 @@
 <p align="center">
   <img src="https://i.postimg.cc/2jPRyjSj/reijugh.png" />
-  <img src="https://i.postimg.cc/MpLy2LYt/rere.png" /> 
+  <img src="https://i.postimg.cc/NfHy207Y/prety.png" /> 
 
   <div align="center">
 
